@@ -1,4 +1,4 @@
-<img align="right" src="https://p.ananas.chaoxing.com/star3/origin/1a948833edbf2950112a2345eb4ef378.png">
+<img align="right" src="https://cdn.jsdelivr.net/gh/RinShiru/RinShiru/kanon.png">
 
 ![RinShiru](https://count.getloli.com/get/@:RinShiru?theme=rule34)
 
